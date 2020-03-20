@@ -1,0 +1,2 @@
+# solo
+Computer novice
